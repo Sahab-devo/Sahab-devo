@@ -1,5 +1,3 @@
-## Hi there 👋
-
-<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/f8da89d8-5b45-4fc0-a1b4-f9a83d7a4040" />
 
 
+![212750155-3ceddfbd-19d3-40a3-87af-8d329c8323c4](https://github.com/user-attachments/assets/baefa5fa-7213-4a33-b0c1-f2166846a00a)
